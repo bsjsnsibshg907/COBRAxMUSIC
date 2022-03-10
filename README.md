@@ -26,4 +26,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![Shubhi Halder](https://te.legra.ph/file/533a910b5ec006dbd492b.jpg)](https://t.me/Sushil8xop)
+[![Shubhi Halder](https://te.legra.ph/file/533a910b5ec006dbd492b.jpg)](https://t.me/Shubhi8x) 
